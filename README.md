@@ -3,7 +3,7 @@ This is privacy policy page for Application BeepStop
 
 Privacy Policy
 
-Last updated: 11.02.2022
+Last updated: 24.04.2024
 
 Introduction
 
